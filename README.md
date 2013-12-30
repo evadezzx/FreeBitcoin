@@ -3,7 +3,7 @@
 
 ### 唯一免费获取莱特币站点
 
-* [Ltc4you](http://ltc4you.com/?r=13390)★★★★★
+* [Ltc4you](http://ltc4you.com/?r=13390) ★★★★★
 
     玩转盘游戏，免费的莱特币。
 
