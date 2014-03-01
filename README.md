@@ -1,6 +1,10 @@
 如何免费获得比特币、莱特币？
 ===========
 
+### 优秀网站
+
+* [AllReadEasy](http://www.allreadeasy.com) ★★★★★
+
 ### 短链接被点就赚钱
 
 * [Ref.so](http://www.ref.so/member/insert/evadezzx.html) ★★★★★
